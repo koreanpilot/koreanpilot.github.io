@@ -1,1 +1,0 @@
-# koreanpilot.github.io
